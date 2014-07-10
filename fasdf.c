@@ -1,1 +1,0 @@
-Chimpances! Eslamistas! Chimpances!
